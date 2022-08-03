@@ -11,10 +11,8 @@ and my mother from Bosnia
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Flag_of_Bosnia_and_Herzegovina.svg/2560px-Flag_of_Bosnia_and_Herzegovina.svg.png" alt="Bosnian Flag" width="210"/> 
 
-Went to the American School in London where I met some life long friends. After that went to the University of Surrey. Waste of time.
+Went to the American School in London where I met some life long friends. After that went to the University of Surrey. *Chunder* 
 
-I am also a Gibbon
-> ## _"A person who looks comical on apperance and has the IQ of a wrench"_
 
 
 ---
@@ -32,5 +30,3 @@ I am also a Gibbon
 - Pizza
 - Pretty much all pasta
 - Risotto
-
-## Thank you for taking the time to read who I am. You are now free to change your life accordingly 
