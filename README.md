@@ -11,16 +11,18 @@ and my mother from Bosnia
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Flag_of_Bosnia_and_Herzegovina.svg/2560px-Flag_of_Bosnia_and_Herzegovina.svg.png" alt="Bosnian Flag" width="210"/> 
 
-Went to the American School in London where I met some life long friends. After that went to the University of Surrey. *Chunder* 
+Went to the American School in London where I met some life long friends. After that went to the University of Surrey. Nothing else to add there...
 
 
 
 ---
 ## Hobbies
-1. Cooking
-2. Gaming
-3. Drinking
-4. Being a legend
+1. **L**earning to Cook
+2. **E**xercise 
+3. **G**aming
+4. **E**lectric Longboard Riding
+5. **N**ight Walks
+6. **D**arts
 
 
 ---
