@@ -17,13 +17,13 @@ Went to the American School in London where I met some life long friends. After 
 
 ---
 ## Hobbies
-1. **L**earning to Cook
-2. **E**xercise 
-3. **G**aming
-4. **E**lectric Longboard Riding
-5. **N**ight Walks
-6. **D**arts
-
+1. Stretching
+2. Marinating Steak
+3. Origami
+4. Kick boxing
+5. Inventing
+6. Night Walks
+7. Gaming
 
 ---
 ## Favorite Food
