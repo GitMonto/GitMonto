@@ -1,4 +1,4 @@
- # **Marko Milovic (Monto)** <div dir="rtl"> [Linkedin](https://www.linkedin.com/in/marko-milovic-5ab71220b/)  <div dir="rtl">[GitHub](https://github.com/GitMonto/hello-world)
+ # **Marko Milovic ** <div dir="rtl"> [Linkedin](https://www.linkedin.com/in/marko-milovic-5ab71220b/)  <div dir="rtl">[GitHub](https://github.com/GitMonto/hello-world)
  
 ## Who am I?
 
